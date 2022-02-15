@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Silvia
-- 👀 I’m interested in anything techy, arty, sporty, even better if they get combined. Besides work: Netflix, sports (⚽️ 🎾 🎱 🏎 ), languages/cultures, anything!   
+- 👀 I’m interested in anything techy, arty, sporty, even better if they get combined. Besides work: Netflix, sports (⚽️ 🎾 🎱 🏎 ), Memes... especially if they are featuring cats
 - 🌱 I’m currently learning a bit more about how the BE side of our project works
 - 💞️ I’m looking to collaborate on anything!
 - 📫 How to reach me: ping me a message on Slack!
